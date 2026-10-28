@@ -2,7 +2,7 @@
 
 Here is what I build, why nearly everything in this account is private, and where to read the parts that are not.
 
-I am Head of Marketing at ZIK Analytics, based in Kuala Lumpur, with more than eight years across paid acquisition, SEO, content, lifecycle, conversion, and measurement. Before this, DocuClipper and Microsoft.
+I am Head of Marketing at ZIK Analytics, based in Kuala Lumpur, with more than eight years across paid acquisition, SEO, content, lifecycle, conversion, and measurement. Before this, DocuClipper and Agile Dynamics Solutions, a Microsoft Dynamics 365 partner.
 
 I am a marketer who builds his own tools. That is the short version.
 
